@@ -2,6 +2,7 @@
 
 ##　斗志昂扬，七三最强
 
+
 ![](http://a3.qpic.cn/psb?/V11IYYto13cdje/cfVi2dQSkA0s2O54MHiHNungVvl5emzUB0BPpFHylVY!/b/dG0BAAAAAAAA&bo=VQOAAgAAAAARB.Q!&rf=viewer_4)
 
 **有多少的欢欣与难过/才勾勒出青春的模样/虽不够轰烈/却足以让自己热泪盈眶** 
