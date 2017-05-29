@@ -1,6 +1,6 @@
 # Pokecub 573
 
-##斗志昂扬，七三最强
+##　斗志昂扬，七三最强
 
 ![](http://a3.qpic.cn/psb?/V11IYYto13cdje/cfVi2dQSkA0s2O54MHiHNungVvl5emzUB0BPpFHylVY!/b/dG0BAAAAAAAA&bo=VQOAAgAAAAARB.Q!&rf=viewer_4)
 
