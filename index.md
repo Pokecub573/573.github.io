@@ -14,6 +14,8 @@ title: Pokecub 573
 **以后/我们会用多少时间来回忆/三层一拐弯/就到的那间教室/伙伴们挂着一抹羞涩的笑颜**    
 
 **我们又会用多少时间去感慨：能遇见你们真好**
+
+![](http://a3.qpic.cn/psb?/V11IYYto13cdje/z5BGbBgsRZYQx.GSROUKR*k5FoQm4o3BryIOj9z3qd0!/b/dLMAAAAAAAAA&bo=9AEZAQAAAAACHNU!&rf=viewer_4 "遇见你们真好")
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　——老段
 
 
@@ -22,6 +24,8 @@ title: Pokecub 573
 本站建于 2017 年 5 月，这个月，我们见证了高三的毕业与成人礼，顿时感觉时光一晃而过，我们，只剩下了一年的时间，而对于将要奔赴火箭班的人来说，已经到了尾声的尾声。<br>
 本站旨在增强 573 班班级凝聚力，形成班级合力，以至许多年后，我们虽各奔前程，但仍不让现在这段美好而充满激情的时光。<br>
 **但愿参观本站的诸位，怀有一颗安然、感怀、敬畏之心。**
+
+![](http://a1.qpic.cn/psb?/V11IYYto13cdje/guIicr27rmF8OcmCcLvINEUnBg2Tjsn6.y6Palwsboo!/b/dGsBAAAAAAAA&bo=kAHIAAAAAAACUSw!&rf=viewer_4 "安然、感怀、敬畏之心")
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　——王泽坤
 
 ## 目录
@@ -32,8 +36,9 @@ title: Pokecub 573
 **Member**:  谁曾从你的全世界路过<br>
 **Past**:   有一种风景叫回忆<br>
 **News**:   你关注的就是头条<br>
-**Recommand**:  分享你的选择<br>
+**Ads**:  分享你的选择<br>
 **Wish**:  写下你的的渴望，爱亦或是美酒<br>
+注：Zinfo 指的是站长消息，包括通知与声明事宜等。
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　——鲁杰
 
 ## 关于
